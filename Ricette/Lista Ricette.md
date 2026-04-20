@@ -1,2 +1,2 @@
-![[J Brownies]]
-![[Pesce palla da taschino]]
+[[J Brownies]]
+[[Pesce palla da taschino]]
