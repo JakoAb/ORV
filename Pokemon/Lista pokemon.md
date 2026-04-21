@@ -12,7 +12,7 @@
 [[Charizard]]
 [[Venusaur]]
 [[Goodra]]
-[[Tandemaus]]
+[[Maushold]]
 [[Scovillain]]
 [[Klefki]]
 [[Floette di AZ]]
